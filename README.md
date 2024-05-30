@@ -1,2 +1,3 @@
-# learn
-kho bài tập bài nộp ktra
+well
+this is my........
+but i don't know what i said now
